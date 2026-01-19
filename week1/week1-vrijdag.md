@@ -29,6 +29,6 @@
 
 
 
-> **Algmeeen gevoel:**
+> **Algemeen gevoel:**
 > - **"Kei blij"**
 > - **"Klaar voor het weekend haha"**
